@@ -1,1 +1,2 @@
-# the-academys-genius-tamer
+# The Academy’s Genius Tamer
+« Une fenêtre du système… ? Qu’est-ce qui se passe ici…» [Synchroniser l’histoire du point de vue de Han Siha] Je suis devenu Han Siha, un petit méchant dans le roman fantastique sombre que j’ai aimé une fois. Pourquoi ça devait être Han Siha ?! Il n’a aucun talent pour la magie et se fait tuer par les protagonistes au début de l’histoire ! Je dois survivre, quoi qu’il arrive ! Pour vivre une vie paisible sans s’enliser avec les protagonistes, le diplôme de l’académie est un must. Mais pour Han Siha, qui
